@@ -1,6 +1,4 @@
-
-
-there was no animation here wdym
+sorry lad i deleted the animation
 
 <img width="1240" height="395" alt="1000007796" src="https://github.com/user-attachments/assets/2c3f4c59-9555-46aa-8703-afdf3e230833" />
 ## Welcome to my Readme!

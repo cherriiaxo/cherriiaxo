@@ -4,23 +4,10 @@ sorry lad i deleted the animation
 Hello ! I am Cherri! 
 You may call me Cherri, Cherry, Blossom, Saki!
 More information on my strawpage!
-
-Lace
-
- 
- Random object here
-    
 <img width="100" height="200" alt="1000009555" src="https://github.com/user-attachments/assets/8aba2df9-cecf-4bee-8ea7-b0485a0e0d1d" />
 <img width="100" height="200" alt="1000009558" src="https://github.com/user-attachments/assets/e39160d7-f84a-48ff-a94a-cdb52079b2f6" /> 
 <img width="100" height="200" alt="1000009632" src="https://github.com/user-attachments/assets/cb13fc58-425c-4395-b62c-a96994618a13" />
 <img width="100" height="200" alt="aw noelle" src="https://github.com/user-attachments/assets/5dea8591-fd9b-49fe-b3cf-5cbf13d9aa66" />
-
-Lace>
-  
-  
-  Another random object here>
-
-
 Readme is a wip, Shoutout to Gail for teaching me how to make one!
 Fun Gang Gifs aren't mine, as i got them from chrome. They belong to their rightful owners.
 <!--

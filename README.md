@@ -1,4 +1,5 @@
 suselle mentioned??
+<img width="1280" height="1280" alt="1000009819" src="https://github.com/user-attachments/assets/1103eb45-1948-4c6f-9142-91516740f5ae" />
 
 ## Welcome to my Readme!
 Hello ! I am Cherri! 

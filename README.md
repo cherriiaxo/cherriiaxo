@@ -1,10 +1,12 @@
-suselle mentioned??
-<img width="1280" height="1280" alt="1000009819" src="https://github.com/user-attachments/assets/1103eb45-1948-4c6f-9142-91516740f5ae" />
+
 
 ## Welcome to my Readme!
 Hello ! I am Cherri! 
 You may call me Cherri, Cherry, Blossom, Saki!
 More information on my strawpage!
+<img width="1280" height="745" alt="1000009822" src="https://github.com/user-attachments/assets/56b92757-2adf-41d3-873a-9e63d7dec41b" />
+
+
 <img width="100" height="200" alt="1000009555" src="https://github.com/user-attachments/assets/8aba2df9-cecf-4bee-8ea7-b0485a0e0d1d" />
 <img width="100" height="200" alt="1000009558" src="https://github.com/user-attachments/assets/e39160d7-f84a-48ff-a94a-cdb52079b2f6" /> 
 <img width="100" height="200" alt="1000009632" src="https://github.com/user-attachments/assets/cb13fc58-425c-4395-b62c-a96994618a13" />

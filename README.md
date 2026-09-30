@@ -17,10 +17,10 @@ More information on my strawpage!
 <img width="100" height="200" alt="aw noelle" src="https://github.com/user-attachments/assets/5dea8591-fd9b-49fe-b3cf-5cbf13d9aa66" />
 Readme is a wip, Shoutout to Gail for teaching me how to make one!
 Fun Gang Gifs aren't mine, as i got them from chrome. They belong to their rightful owners.
+THANK YOU!1!1!1
+<img width="200" height="50" alt="1000010350" src="https://github.com/user-attachments/assets/cb52cb35-6bc4-47eb-a05c-79bb35b8919f" />
+<img width="200" height="50" alt="1000010352" src="https://github.com/user-attachments/assets/08b957bb-c47c-4456-98e4-2cc372026040" />
 
-<img width="1280" height="745" alt="1000009822" src="https://github.com/user-attachments/assets/245d8e31-002d-4756-828a-d47032098fab" />
-
-https://github.com/user-attachments/assets/54423d56-3976-4011-99e9-d6873ac177f9
 <img width="1280" height="304" alt="1000009823" src="https://github.com/user-attachments/assets/46f1117a-7ed1-4743-916f-948a3a27c104" />
 
 

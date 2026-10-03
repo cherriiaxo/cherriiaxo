@@ -4,6 +4,7 @@
 <img width="1280" height="304" alt="1000009823" src="https://github.com/user-attachments/assets/f93628f9-3496-452c-8c66-997c6bc6dd02" />
 
 ## Welcome to my Readme!
+
 Hello ! I am Cherri! 
 You may call me Cherri, Cherry, Blossom, Saki!
 More information on my strawpage!

@@ -25,8 +25,7 @@ THANK YOU!1!1!1
 <img width="200" height="50" alt="1000010352" src="https://github.com/user-attachments/assets/08b957bb-c47c-4456-98e4-2cc372026040" />
 
 <img width="1280" height="304" alt="1000009823" src="https://github.com/user-attachments/assets/46f1117a-7ed1-4743-916f-948a3a27c104" />
-<img width="1235" height="291" alt="1000009824" src="https://github.com/user-attachments/assets/c34aa8f1-11d4-4e9c-a821-9f06208c20ee" />
-
+<img width="1235" height="291" alt="1000009824" src="https://github.com/user-attachments/assets/c34aa8f1-11d4-4e9c-a821-9f06208c20ee" /> 
 <!-- secret but
 **cherriiaxo/cherriiaxo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

@@ -26,7 +26,7 @@ THANK YOU!1!1!1
 
 <img width="1280" height="304" alt="1000009823" src="https://github.com/user-attachments/assets/46f1117a-7ed1-4743-916f-948a3a27c104" />
 <img width="1235" height="291" alt="1000009824" src="https://github.com/user-attachments/assets/c34aa8f1-11d4-4e9c-a821-9f06208c20ee" /> 
-<!-- secr
+<!-- sec
 **cherriiaxo/cherriiaxo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:

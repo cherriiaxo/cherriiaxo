@@ -1,7 +1,7 @@
 
 <img width="1235" height="291" alt="1000009824" src="https://github.com/user-attachments/assets/c34aa8f1-11d4-4e9c-a821-9f06208c20ee" />
 
-<img width="1280" height="304" alt="1000009823" src="https://github.com/user-attachments/assets/f93628f9-3496-452c-8c66-997c6bc6dd02" />
+<img width="1280" height="304" alt="1000009823" src="https://github.com/user-attachments/assets/f93628f9-3496-452c-8c66-997c6bc6dd02" /> 
 
 ## Welcome to my Readme!
 

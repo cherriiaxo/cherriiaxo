@@ -18,7 +18,7 @@ More information on my strawpage!
 <img width="100" height="200" alt="aw noelle" src="https://github.com/user-attachments/assets/5dea8591-fd9b-49fe-b3cf-5cbf13d9aa66" />
     
     
-    Readme is a wip, Shoutout to Gail for teaching me how to make one!
+Readme is a wip, Shoutout to Gail for teaching me how to make one!
 
 
    Fun Gang Gifs aren't mine, as i got them from chrome. They belong to their rightful owners.

@@ -1,6 +1,6 @@
 ## REMAKING README !!
 
-<img width="128" height="85" alt="hey" src="https://github.com/user-attachments/assets/c8d814e1-9840-4bc5-8766-3dd225758c6a" />
+<img width="580" height="295" alt="hey" src="https://github.com/user-attachments/assets/c8d814e1-9840-4bc5-8766-3dd225758c6a" />
 LMAOO IM FRYING @sproutsbakery
 
 

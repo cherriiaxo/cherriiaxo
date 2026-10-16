@@ -15,4 +15,7 @@ LMAOO IM FRYING
 <img width="300" height="50" alt="1000010352" src="https://github.com/user-attachments/assets/08b957bb-c47c-4456-98e4-2cc372026040" />
 
 
+<img width="1000" height="209" alt="b divider1" src="https://github.com/user-attachments/assets/4b53a95e-4b8a-4a92-8a0b-dcbceec4cb52" />
+
+
 [dividercredit](https://www.tumblr.com/nonokoko13/770231672501403648)

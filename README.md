@@ -1,12 +1,9 @@
 ## REMAKING README !!
 
 <img width="580" height="295" alt="hey" src="https://github.com/user-attachments/assets/c8d814e1-9840-4bc5-8766-3dd225758c6a" />
-LMAOO IM FRYING @sproutsbakery
+LMAOO IM FRYING 
 
-
-
-
-
+[sproutsbakery](https://github.com/sproutsbakery) 
 
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 <code style="color : blue">Thank you for nominating/awarding me !</code>

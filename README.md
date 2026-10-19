@@ -2,7 +2,15 @@
 
 <img width="1000" height="209" alt="b-2 divider1" src="https://github.com/user-attachments/assets/6c453133-7114-49f3-80b2-fcc9da823404" />
 
-                                               Hello! My name is Cherri/Cherry/Blossom/ or Saki!
+                                               Hello! My name is Cherri/Cherry/Blossom/ or Saki !
+
+                          All pronouns are welcome to use on me ! ( Includes She/Her ., He/him ., They/Them ., or It/Its!)
+    I don't necessarily use xeno/neopronouns but if you wanna use them on me, LMK ! (I mainly use the regular pronouns though. I prefer getting called those instead.)
+
+
+
+                                                   OCT 15 ., TRIGENDER
+
 
 
 <img width="580" height="295" alt="hey" src="https://github.com/user-attachments/assets/c8d814e1-9840-4bc5-8766-3dd225758c6a" />

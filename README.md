@@ -9,7 +9,7 @@
 
 
 
-                                                   OCT 15 ., TRIGENDER
+                                              OCT 15 ., TRIGENDER FEMALE * MALE * NON-BINARY
 
 
 

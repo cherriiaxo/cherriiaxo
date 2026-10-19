@@ -10,6 +10,7 @@
 
 
                                               OCT 15 ., TRIGENDER FEMALE * MALE * NON-BINARY
+<img width="1280" height="438" alt="b divider2" src="https://github.com/user-attachments/assets/9efc49cf-37a8-48be-9af0-b9d853ab1cfb" />
 
 
 

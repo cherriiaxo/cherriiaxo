@@ -28,7 +28,7 @@ LMAOO IM FRYING
 
 
 <img width="69" height="112" alt="1000011482" src="https://github.com/user-attachments/assets/1d7e944b-ebab-431f-aae7-0880f7dbed04" />
-<- my art don't steal
+<- my art don't steal, it isn't yours
 
 <img width="1000" height="209" alt="b divider1" src="https://github.com/user-attachments/assets/4b53a95e-4b8a-4a92-8a0b-dcbceec4cb52" />
 
